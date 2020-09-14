@@ -1,4 +1,4 @@
-The Tzedek Box is a new ritual supporting Jews in the ancient pursuit of a more just world.
+The Tzedek Box is a new ritual supporting Jews and their allies in the ancient pursuit of a more just world.
 
 We are the descendants of Abraham who [spoke truth to divine power][1], of Moses and Miriam who [stood up to tyranny][2] and [led the people to freedom][3], of the prophets who [insisted on righteousness][4], of generations of justice-seekers who [have demanded better from those in positions of authority][5].
 
